@@ -6,7 +6,7 @@ It is I, DairyProducts! I'm a high school senior in the San Francisco Bay Area. 
 - 💬 Ask me about **why the F-22 Raptor is the superior fifth generation fighter**
 - 📫 How to reach me: **Discord @&nbsp;** `Dairy#6166`
 - 😄 Pronouns: **he/him**
-- ⚡ Fun fact: **I currently have an empty Diet Snapple bottle and two empty VitaminWater bottles strewn on my desk I am yet to thrown away**
+- ⚡ Fun fact: **I currently have an empty Diet Snapple bottle and two empty VitaminWater bottles strewn on my desk that I am yet to throw away**
 
 <!--
 **DairyProducts/DairyProducts** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
