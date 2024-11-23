@@ -4,7 +4,7 @@ It is I, DairyProducts! I'm a high school senior in the San Francisco Bay Area. 
 - 🔭 I’m currently working on **surviving my last year of high school**
 - 🌱 I’m currently learning **web development basics**
 - 💬 Ask me about **why the F-22 Raptor is the superior fifth generation fighter**
-- 📫 How to reach me: **Discord @ ** `Dairy#6166`
+- 📫 How to reach me: **Discord @&nbsp;** `Dairy#6166`
 - 😄 Pronouns: **he/him**
 - ⚡ Fun fact: **I currently have an empty Diet Snapple bottle and two empty VitaminWater bottles strewn on my desk I am yet to thrown away**
 
